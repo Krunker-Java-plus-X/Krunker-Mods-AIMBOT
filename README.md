@@ -1,4 +1,4 @@
-# Krunker-Mods-AIMBOT-
+# Krunker-Mods-AIMBOT
 Krunker MODS AND AIMBOT!
 __________________________________
 >Krunker.io Hack v2.5.9✔️
